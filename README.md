@@ -16,3 +16,4 @@ Here are some ideas to get you started:
 -->
 
 - 🔭 I instruct on Udemy: https://www.udemy.com/user/sujan-pokhrel-20/
+- ⚡Connect with me on LinkedIn: https://www.linkedin.com/in/sujandstc/
